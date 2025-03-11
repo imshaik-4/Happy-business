@@ -102,8 +102,8 @@ https://happy-business.web.app
 📧 Contact Me
 If you have any questions or need customization in the project, feel free to contact me:
 
-📧 Email: shoai@shoaib.com
-💻 GitHub: imshaik-4
+📧 Email: shoaibma67@gmail.com
+💻 GitHub: Mohammadabdulshoaib
 📲 WhatsApp: +91 6301 567 009
 
 🎉 Future Improvements
